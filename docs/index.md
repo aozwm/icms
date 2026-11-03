@@ -1,8 +1,7 @@
 ---
 title: 澳洲悉尼国际管理学院毕业证（International College of Management, Sydney diploma）视觉规范与版面辨析
 description: 独家深度解析澳洲悉尼国际管理学院（ICMS）最新版学位证书毕业证模版的独特视觉排版特征。围绕其标志性双色拼接盾徽、金属质感冷压圆形金印以及极其特殊的曼利（Manly）校区校址标注，提供高差异化的原版证书视觉核验标准。
-tags: 悉尼国际管理学院学历文凭 ICMS毕业证
- ---
+---
 
 # 澳洲悉尼国际管理学院毕业证（International College of Management, Sydney diploma）视觉规范与版面辨析
 
